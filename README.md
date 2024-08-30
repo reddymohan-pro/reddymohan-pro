@@ -1,6 +1,6 @@
 ## Hi there 👋 I'm Reddy Mohan Reddy
 
-I'm what you describe as the first second after the victory,...
+# I'm the first second after the victory,...
 
 
 
